@@ -15,3 +15,5 @@
 
 
 家在**https://www.reddit.com/r/runtonihon/**
+
+注**帖子将保存在posts中**
