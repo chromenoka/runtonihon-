@@ -1,6 +1,6 @@
-# RunToNihon Archive
+# runtonihon Archive
 
-本项目旨在建立 **RunToNihon** 的档案馆，收集并保存 **RunToJapan** 社区中的历史优质帖子。
+本项目旨在建立 **Runtonihon** 的档案馆，收集并保存 **RunToJapan** 社区中的历史优质帖子。
 
 ## 项目现状
 
