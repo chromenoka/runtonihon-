@@ -27,6 +27,10 @@
 
 
 除此之外，还要日语 **N4以上**，否则必须加考一门 **JFT-Basic**（就是前阵子因为替考风波临时停考的那个东西）。  
+<img width="649" height="923" alt="大龄医生润日笔记chapter-2-v0-uqk75tdym68e1" src="https://github.com/user-attachments/assets/f124a0d8-a741-4f9e-b378-cfdaaaaf49ba" />
+
+<img width="651" height="923" alt="大龄医生润日笔记chapter-2-v0-r7j4dxlzm68e1" src="https://github.com/user-attachments/assets/1e452acf-8b12-4796-90ee-a1559e0ea27e" />
+
 
 > 我吗？当然是满分咯。  
 
