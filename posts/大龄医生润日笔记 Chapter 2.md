@@ -17,11 +17,10 @@
 - 技能：60分钟45道题，我 10 分钟交卷  
 - 日语：30分钟15道题，我 5 分钟交卷  
 
-交卷后当场判定通过不通过，具体的成绩单之后可以在报名网站:https://web.archive.org/web/20241222134821/https://www.prometric-jp.com/ssw/test_list/archives/2
-[显示的文字][id]
+交卷后当场判定通过不通过，具体的成绩单之后可以在报名网站 [Prometric 特定技能考试页面][prometric] 上查到。  
 
-[id]: 链接地址
-上查到。  
+[prometric]: https://web.archive.org/web/20241222134821/https://www.prometric-jp.com/ssw/test_list/archives/2
+
 
 除此之外，还要日语 **N4以上**，否则必须加考一门 **JFT-Basic**（就是前阵子因为替考风波临时停考的那个东西）。  
 
