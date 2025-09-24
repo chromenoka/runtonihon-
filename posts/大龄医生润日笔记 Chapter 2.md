@@ -1,5 +1,6 @@
 
-> Chapter 1：大龄医生润日路线求指导
+> 
+> [Chapter 1：大龄医生润日路线求指导](https://github.com/chromenoka/runtonihon-/blob/main/posts/%E5%A4%A7%E9%BE%84%E5%8C%BB%E7%94%9F%E6%B6%A6%E6%97%A5%E8%B7%AF%E7%BA%BF%E6%B1%82%E6%8C%87%E5%AF%BC.md)
 
 把具体经过记录一下吧。如果这条路走通了可以成为一篇很好的指南，如果走不通也可以留念。  
 
