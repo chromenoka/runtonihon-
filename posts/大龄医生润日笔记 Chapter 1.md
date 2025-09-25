@@ -63,6 +63,5 @@
 ---
 
 🙇‍♂️ ご指導ご鞭撻のほどよろしくお願いいたします！
+[原帖]([https://web.archive.org/web/20241222134821/https://www.prometric-jp.com/zh-CHS/ssw/test_list/archives/2](https://web.archive.org/web/20241222134814/https://www.reddit.com/r/runtoJapan/comments/1gpfioz/%E5%A4%A7%E9%BE%84%E5%8C%BB%E7%94%9F%E6%B6%A6%E6%97%A5%E8%B7%AF%E7%BA%BF%E6%B1%82%E6%8C%87%E5%AF%BC/))
 
-<br><br><br><br><br><br><br><br>
-原帖：https://web.archive.org/web/20241222134814/https://www.reddit.com/r/runtoJapan/comments/1gpfioz/%E5%A4%A7%E9%BE%84%E5%8C%BB%E7%94%9F%E6%B6%A6%E6%97%A5%E8%B7%AF%E7%BA%BF%E6%B1%82%E6%8C%87%E5%AF%BC/
