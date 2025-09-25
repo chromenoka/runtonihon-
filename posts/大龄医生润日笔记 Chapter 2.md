@@ -78,6 +78,6 @@ J-Find
 <img width="651" height="923" alt="大龄医生润日笔记chapter-2-v0-r7j4dxlzm68e1" src="https://github.com/user-attachments/assets/1e452acf-8b12-4796-90ee-a1559e0ea27e" />
 
 
-
+[原帖](https://web.archive.org/web/20241222140313/https://www.reddit.com/r/runtoJapan/comments/1hj7u2y/%E5%A4%A7%E9%BE%84%E5%8C%BB%E7%94%9F%E6%B6%A6%E6%97%A5%E7%AC%94%E8%AE%B0chapter_2/)
 
 
